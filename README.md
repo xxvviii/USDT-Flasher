@@ -12,7 +12,7 @@ Activate License After getting a license, insert your license key and activation
 Run App After activating the license you'll be in your flash sender portal, where you can start making your flash usdt sendings
 
 # [STEP4](https://t.me/coathox)
-Start Sending Flash USDT Follow the app's intuitive interface. Insert your destination wallet, specify the amount you want to send, and complete the transaction. To get the software, Please [Contact Admin](https://t.me/coathox)
+Start Sending Flash USDT Follow the app's intuitive interface. Insert your destination wallet, specify the amount you want to send, and complete the transaction. To get the software, Please [Contact Admin](https://t.me/coathox) For Proofs, test flash, Software and Pricing
 
 Click To join our [Telegram Channel](https://t.me/bitcoin_flashing) for more latest Updates
 
